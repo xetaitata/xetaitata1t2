@@ -1,6 +1,6 @@
 # xetaitata1t2
 Xe tải TaTa 1t2 là dòng xe nhập khẩu trực tiếp tại TaTa MoTor Ấn Độ, xe có thời gian bảo hành 3 năm hoặc 100.000km
-<strong><a href="https://www.facebook.com/xetaitmttata/" target="_blank" rel="noopener">Xe tải TaTa 1t2 Ấn Độ</a></strong> là dòng xe tải nhẹ được sản xuất bởi TaTa Ấn Độ, một trong 4 tập đoàn sản xuất xe ô tô lớn nhất thế giới và được <strong>TMT Motor</strong> nhập khẩu nguyên chiếc về Việt Nam.
+<strong><a href="http://ototata.com/xe-tai-tata-1t2.html" target="_blank" rel="noopener">Xe tải TaTa 1t2 Ấn Độ</a></strong> là dòng xe tải nhẹ được sản xuất bởi TaTa Ấn Độ, một trong 4 tập đoàn sản xuất xe ô tô lớn nhất thế giới và được <strong>TMT Motor</strong> nhập khẩu nguyên chiếc về Việt Nam.
 
 <img class="size-full wp-image-154 aligncenter" src="https://xetaitata.files.wordpress.com/2017/11/xe-tai-tata-1t2-may-dau.jpg" alt="Xe tải TaTa 1t2 Ấn Độ" width="601" height="400" />
 
@@ -16,7 +16,7 @@ TaTa Super Ace được trang bị động cơ dầu Diezen IDT độc quyền T
  	<li>Chi phí bảo dưỡng thấp</li>
 </ul>
 <img class="aligncenter wp-image-155 size-full" src="https://xetaitata.files.wordpress.com/2017/11/xe-tai-tata-1-tan-2-thung-2m6.jpg" alt="Xe tải TaTa 1t2 máy dầu" width="602" height="400" />
-<h3>Các sản phẩm <a href="https://www.facebook.com/xetaitmttata/" target="_blank" rel="noopener">Xe tải TaTa 1t2 Ấn Độ</a>:</h3>
+<h3>Các sản phẩm <a href="http://ototata.com/xe-tai-tata-1t2.html" target="_blank" rel="noopener">Xe tải TaTa 1t2</a>:</h3>
 <ul>
  	<li><span style="color: #0000ff;">Xe tải TaTa 1t2 Super Ace thùng lửng</span></li>
  	<li><span style="color: #0000ff;">Xe tải TaTa 1t2 Super Ace thùng mui bạt</span></li>
@@ -24,7 +24,7 @@ TaTa Super Ace được trang bị động cơ dầu Diezen IDT độc quyền T
 </ul>
 <img class="size-full wp-image-156 aligncenter" src="https://xetaitata.files.wordpress.com/2017/11/xe-tai-tata-an-do.jpg" alt="Xe tải TaTa 1t2 Ấn Độ" width="600" height="399" />
 
-Xem chi tiết giá xe tải TaTa 1t2 Ấn Độ: "https://www.facebook.com/xetaitmttata/"
+Xem chi tiết giá xe tải TaTa 1t2 Ấn Độ: "http://ototata.com/xe-tai-tata-1t2.html"
 <h2>Thông số kỹ thuật Xe tải TaTa Ấn Độ 1t2</h2>
 <strong>* Động cơ</strong>
 + Loại động cơ: Động cơ Diesel, loại 4 kỳ, 4 xylanh thẳng hàng, làm mát bằng nước.
@@ -48,7 +48,7 @@ Xem chi tiết giá xe tải TaTa 1t2 Ấn Độ: "https://www.facebook.com/xeta
 + Bán kính vòng quay nhỏ nhất (m): 4,6.
 + Tốc độ tối đa (km/h): 125.
 
-Ngoài xe tải TaTa 1t2 Ấn Độ máy dầu, Xe tải TaTa Super Ace còn trang bị động cơ máy xăng <span style="color: #0000ff;"><strong><a style="color: #0000ff;" href="https://www.facebook.com/xetaitmttata/">TaTa Super Ace 1t</a></strong></span>
+Ngoài xe tải TaTa 1t2 Ấn Độ máy dầu, Xe tải TaTa Super Ace còn trang bị động cơ máy xăng <span style="color: #0000ff;"><strong><a style="color: #0000ff;" href="http://ototata.com/san-pham/xe-tai-tata">TaTa Super Ace 1t</a></strong></span>
 Xe mới 100% đời 2017, có xe giao liền.- Vay trả góp lên đến 80%, hỗ trợ lãi suất tốt nhất có thể cho khách hàng.- Hỗ trợ đăng ký, đăng kiểm, lăn bánh.- Thủ tục đơn giản, nhánh chóng, minh bạch, hóa đơn rõ ràng.- Hỗ trợ kỹ thuật 24/7 kể cả ngày nghỉ, lễ, tết. Bảo hành, bảo dưỡng TOÀN QUỐC.
 <h2>PHÒNG KINH DOANH XE TẢI TATA HCM</h2>
 <div><strong>Địa chỉ: 1454</strong> QL1A, P Thới An, Quận 12, Tp. Hồ Chí Minh</div>
